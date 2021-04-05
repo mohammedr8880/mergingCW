@@ -3,5 +3,5 @@ and
 J cole
 are
 the
-best
+greatest
 rappers
